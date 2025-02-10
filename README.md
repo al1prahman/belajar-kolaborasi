@@ -1,2 +1,3 @@
 # belajar-kolaborasi
-readme buat belajar kolab gesss update 1
+readme buat belajar kolab gesss update 2
+
